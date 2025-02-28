@@ -1,5 +1,5 @@
 # Introduction/介绍！
-#🌊 海底小纵队（华南师范大学分部）
+🌊 海底小纵队（华南师范大学分部）
 ｜The Octonauts SCNU Division 🌊
 
 我们是一群来自电子信息类专业的追梦人😉，
