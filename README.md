@@ -10,10 +10,14 @@
 在知识的海洋中探索，在科技的浪潮中逐光。🧐
 
 逐梦之旅已启航，
+
 敬请期待由我们亲手缔造的盛大未来！🎉🎉
 
 We are dreamers from the Electronic Information Science and Technology major,
+
 united by passion and driven by vision. Like resonating signals and converging currents,
+
 we explore the ocean of knowledge and chase the light of innovation.
+
 The journey has begun—come sail with us!💡
   
